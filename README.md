@@ -1,0 +1,1 @@
+# chinrasu_warehouse_project
